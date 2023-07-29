@@ -1,1 +1,0 @@
-# vijayvthamalla.github.io
